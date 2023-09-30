@@ -1,2 +1,2 @@
-👋 Hi, I’m @XDliver I am almost a dev
+👋 Hi, I’m @XDliver and i'm almost a dev.
 
