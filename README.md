@@ -1,2 +1,2 @@
-👋 Hi, I’m @XDliver and i'm almost a dev.
+👋 Hi, I’m @XDliver and I code game for fun!
 
